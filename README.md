@@ -1,0 +1,1 @@
+# AMATI_Aset-Tetap
